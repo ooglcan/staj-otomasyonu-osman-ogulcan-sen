@@ -1,0 +1,1 @@
+# staj-otomasyonu-osman-ogulcan-sen
